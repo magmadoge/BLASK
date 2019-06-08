@@ -1,4 +1,4 @@
-# Black lighting:The storm 
+# Black storm:The blasting light
 
 
 <p>Zack sparks was walking down in a narrow sidewalk as he found his way to his to the hotel he found a paper with a random writing
@@ -19,3 +19,4 @@ team."
 "well then what happen to me."Zack then went on and look at him self. His eyes was bright and was filled with the color black that
 was overlaping so his eyes looked like black fire.Black lighting streames went out of of his hands "Woah, this fun." Zack kept on
 shooting lighting from his hands.<p>
+  
